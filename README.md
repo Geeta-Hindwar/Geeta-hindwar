@@ -2,14 +2,14 @@
 #### Senior Analyst(Talent Acquisition) 
 ![Senior Analyst(Talent Acquisition) ](https://www.linkedin.com/in/geeta-hindowar-46187730/,https://www.facebook.com/geeta.hindowar,https://twitter.com/geetahindowar)
 
-I Am a dynamic HR professional having conceptual understanding of Human Resource, with rich 3 years of experience in Recruitment/Selection-Bulk & Lateral Hiring, Employee engagement, Talent and workforce planning, Induction & On-boarding, Joining Formalities . Ability to quickly learn organizational processes, workflows, policies and procedures of the company. Exquisite skills in generating, building and sustaining relationships with stakeholders and interacting with decision makers in target organizations. Result-driven data oriented individual targeting assignments and rewarding opportunities in the Human Resource Management domain with an organization of high repute..
+I am a dynamic HR professional having conceptual understanding of Human Resource with rich 3 years of experience in Recruitment/Selection (Bulk & Lateral Hiring), Employee Engagement, Talent and workforce planning, Induction & On-boarding, Joining Formalities. Ability to quickly learn organizational processes, workflows, policies and procedures of the company. Exquisite skills in generating, building and sustaining relationships with stakeholders and interacting with decision makers in target organizations. Result-driven data oriented individual targeting assignments and rewarding opportunities in the Human Resource Management domain with an organization of high reputation.
 
-Skills: Recruitment, On boarding, salary negotiations,enter and Exit formalities 
+Skills: Recruitment, On-boarding, Salary Negotiations, Enter and Exit Formalities 
 
-- 🔭 I’m currently working on Nagarro 
+- 🔭 I’m currently working In Nagarro 
 - 🤔 I’m looking for help with Ambitious candidates 
 - 💬 Ask me about The job opening 
-- 📫 How to reach me: Geetahindowar@gmail.com 
+- 📫 How to reach me: geetahindowar@gmail.com 
 - ⚡ Fun fact: Learn while Doing 
 
 
