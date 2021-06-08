@@ -2,7 +2,7 @@
 #### Senior Analyst(Talent Acquisition) 
 ![Senior Analyst(Talent Acquisition) ](https://www.linkedin.com/in/geeta-hindowar-46187730/,https://www.facebook.com/geeta.hindowar,https://twitter.com/geetahindowar)
 
-I am a dynamic HR professional having conceptual understanding of Human Resource with rich 3.2 years of experience in Recruitment/Selection (Bulk & Lateral Hiring), Employee Engagement, Talent and workforce planning, Induction & On-boarding, Joining Formalities. Ability to quickly learn organizational processes, workflows, policies and procedures of the company. Exquisite skills in generating, building and sustaining relationships with stakeholders and interacting with decision makers in target organizations. Result-driven data oriented individual targeting assignments and rewarding opportunities in the Human Resource Management domain with an organization of high reputation.
+I am a dynamic HR professional having conceptual understanding of Human Resource with rich 3.5 years of experience in Recruitment/Selection (Bulk & Lateral Hiring), Employee Engagement, Talent and workforce planning, Induction & On-boarding, Joining Formalities. Ability to quickly learn organizational processes, workflows, policies and procedures of the company. Exquisite skills in generating, building and sustaining relationships with stakeholders and interacting with decision makers in target organizations. Result-driven data oriented individual targeting assignments and rewarding opportunities in the Human Resource Management domain with an organization of high reputation.
 
 Skills: Recruitment, On-boarding, Salary Negotiations, Enter and Exit Formalities 
 
